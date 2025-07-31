@@ -4,7 +4,7 @@
 📍 Chennai, Tamil Nadu, India  
 🌐 [Portfolio Website](https://akishore-12.github.io/kishore-portfolio)  
 📄 [View My Resume](https://drive.google.com/file/d/1xm-SOzcv93rFRa6GnkQqO-fzUm3rgxtD/view?usp=sharing)  
-🔗 [LinkedIn](https://www.linkedin.com/in/kishore-ai) • [GitHub](https://github.com/AKishore-12)
+🔗 [LinkedIn](https://www.linkedin.com/in/kishore-ai)
 
 ---
 
